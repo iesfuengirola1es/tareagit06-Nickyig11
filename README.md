@@ -1,1 +1,3 @@
-# tareagit06-Nickyig11
+# tareagit06-Nickyig11 (solucion issues)
+
+
